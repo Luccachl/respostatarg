@@ -1,0 +1,1 @@
+Para descobrir qual lampada é qual eu provavelmente ligaria uma das lampadas por algum tempo, apagaria ela e acenderia outra. Então eu iria até uma das salas. A com a lampada mais quente é a que eu acendi primeiro, a morna a segunda e a fria a terceira.
